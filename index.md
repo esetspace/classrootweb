@@ -1,5 +1,6 @@
-# Public Project Webroot Download Already Purchased? How to Install on Another PC or Reinstall Easily
+# Public Project Webroot Download Already Purchased? How to I-n-stall on Another PC or R-e-install Easily
 
-My first project, i am so happy. Yippie
+Valuable information for the users.
+
 
 
